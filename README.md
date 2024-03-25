@@ -5,7 +5,7 @@ Diego Antonio Fuentes Guardado   FG230381
 Rene Emanuel Lopez Maldonado     LM211126
 
 Documento del proyecto:
-https://drive.google.com/file/d/1H9k6E9KAAGJu3lTtJG9f8Dk3k01ztGF-/view?usp=sharing
+https://drive.google.com/file/d/1uqSEybea-mJ9bZfCKIvUXCpBpTzo-DI_/view?usp=sharing
 
 Enlace de trello se agrego el usuario alexander_siguenza:
 https://trello.com/invite/b/f321meEK/ATTI2afd214e61304709b26a7d398f773d993D9E5F24/proyecto-adp
